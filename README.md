@@ -1,4 +1,4 @@
-# 💫 About Me:
+# About Me:
 My focus is to find a way for my dreams to come true using technology
 
 
